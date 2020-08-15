@@ -1,0 +1,11 @@
+C:\Users\thughes\Documents\git\boxcomp\tubesection-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection_welded-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection_welded-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection_bolted-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection_welded-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection_welded-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection_welded-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection_bolted-Static 1
+C:\Users\thughes\Documents\git\boxcomp\tubesection_bolted-Static 1
